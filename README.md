@@ -1,7 +1,7 @@
 ### Remidi UTS
 
 ### Download
-[Download Aplikasi](https://drive.google.com/file/d/0B36Y2xO8CvzlNkVwanpJSUw3Xzg/view?usp=sharing)
+[Download Aplikasi](https://drive.google.com/uc?export=download&id=0B36Y2xO8CvzlNkVwanpJSUw3Xzg)
 
 ### Identitas Siswa :
 * Nama          : Dini Eka Ristanti
